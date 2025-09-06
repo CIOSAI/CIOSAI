@@ -18,6 +18,6 @@ Hi soy ciosai o ciosai_tw en mayorias de las plataformas, me llamo JY también
 Me gustan todos los artes digitales, y dibujo con bolígrafo
 
 ---
-Hi nama saya ciosai atau ciosai_tw di internet, boleh panggil JY
+Hi nama internet saya ciosai atau ciosai_tw, panggil JY pun boleh
 
-Cinta macam² seni digital, saya gambar cara pen&paper juga
+Suka menggambar cara pen&paper dan macam² seni digital
