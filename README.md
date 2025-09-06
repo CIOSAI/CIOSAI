@@ -10,7 +10,7 @@ I like all kinds of digital arts and drawing with pen&paper
 ---
 Hi ich bin ciosai oder ciosai_tw im internet, mir kann man JY heißen
 
-Ich mache digitale dinge und ziechne mit stift
+Ich mache digitale dinge und zeichne mit stift
 
 ---
 Hi soy ciosai o ciosai_tw en mayorias de las plataformas, me llamo JY también
